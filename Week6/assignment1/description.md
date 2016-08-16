@@ -1,0 +1,1 @@
+Assignment. With pict
